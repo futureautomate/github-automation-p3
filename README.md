@@ -19,7 +19,7 @@ Github link - https://github.com/futureautomate
 
 previous code link - https://github.com/futureautomate/github-automation-p2
 
-Thank You Guy for your precious comments.
+Thank You guys for your precious comments.
 
 Please do watch and share the video.
 Comments, Suggestions, and Ideas, please put in the comment box.
